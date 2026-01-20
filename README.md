@@ -1,0 +1,1 @@
+# 235510012-Amrin-Akbar-Pattah-parallel-programing-task-UAS
